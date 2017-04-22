@@ -13,7 +13,7 @@ collaborator—if you ask and you're not some kind of deep-dish-eating monster.
 
 #### Oakland
 
-* [Hi-Life](http://www.hilifeoakland.com) - [400 15th St](#address)
+* [Five10](http://www.five10-pizza.com) - [400 15th St](#address)
 * [Zachary's](http://zacharys.com/locations/oakland) - [5801 College Ave.](#address)
 
 #### Palo Alto
